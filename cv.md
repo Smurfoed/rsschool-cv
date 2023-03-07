@@ -3,7 +3,7 @@
 Telegram: @bodya_015
 Instagram: __boh.dann__
 
-Живу в Украине, 16 лет, к 18 хочу стать Junior Frontend разработчиком!
+Живу в Украине, 16 лет, к 18 хочу стать Junior Frontend разработчиком!!!
 
 Навыки:
   - могу сделать дизайн в Figmaa
